@@ -1,10 +1,24 @@
 # 🚀 Telegram 频道导航 - 发现无限精彩
 
+## ⚠️ 郑重声明
+
+**本项目仅限中国大陆以外地区用户使用！**
+
+请严格遵守您所在国家的法律法规，一切法律风险与本项目无关！
+
+**（中国大陆用户请立即关闭页面，谢谢配合）**
+
+---
+
 ## ✨ 关于本站
 
 **欢迎来到 Telegram 频道导航网站！** 🌟
 
 本站精心收集整理了 **超过 10,000+** 个优质 Telegram 频道、群组和机器人，涵盖技术开发、新闻资讯、生活娱乐、游戏、金融理财、ACG动漫等各个领域。无论你是技术极客、新闻爱好者、游戏玩家，还是生活达人，这里都能找到你感兴趣的内容！
+
+🌐 **官方网站：** [https://tggroups.site/](https://tggroups.site/)
+
+💡 **温馨提示：** 本文件罗列的只是一部分精选内容，更多惊喜请访问官网查看！
 
 ### 📌 重要声明
 
@@ -163,7 +177,6 @@
 - **[百度推广 项目包装 宣传视频 官网制作 东方财富号发文 负面舆情处理 美国 MSB 牌照 视频剪辑](https://t.me/bdxwzs)** - 百度新闻 新闻媒体发布 外汇牌照申请 基金会牌照 博彩视频制作 海外玩家视频 项目包装 LOGO 设计
 - **[电报🕎商业♊️博客🔯博彩💎视频和电影](https://t.me/dianbao18)** - 电报商业️博客博彩视频和电影
 - **[项目包装 百度推广 宣传视频 东方财富号发文 官网制作 美国 MSB 牌照 负面舆情处理 视频剪辑](https://t.me/ksspxja)** - 百度推广 抖音视频下架 视频 ps AI 换脸 美国 NFA 牌照 快手视频下架 老外 CEO 视频 项目宣传片制作 纳斯达克大...
-- **[乱伦电影院](https://t.me/luanlunyingshi)** - 乱伦电影院 - Telegram频道
 - **[名剧师爷\|影视解说\|追剧\|电视剧](https://t.me/mingjushiye)** - 看几代权臣起起伏伏，品历朝官场真真假假。
 - **[区块链🛩体育竞技🎉精美图片🛫素材话术🏍欧美精聊](https://t.me/oumei83)** - 区块链体育竞技精美图片素材话术欧美精聊
 - **[项目包装 项目品宣资料 项目宣传片制作 MG 动画制作](https://t.me/xiangmubaozhuo)** - 推特粉丝、项目包装、项目品宣资料、东方财富号发文、同花顺发文、明星祝福视频、项目宣传片制作、MG 动画制作...@ETH8573    @ETS8573
@@ -386,7 +399,6 @@ https://sean.cat/about
 - **[公司宣传片 白皮书制作 项目启动仪式 视频制作PS](https://t.me/kjhd4688)** - 项目白皮书制作 经济模型PPT 新闻媒体发布 海报UI LOGO设计 公司办公环境PS 宣传片 启动大会PS 团队考察PS 。。。 @BEP2089 @ETH499
 - **[篮球足球蛇货-一手资源蛇货软件](https://t.me/yishoushehuoxiu1)** - 为满足广大客户需求，我们有多款热门模型提供选择并承诺数据来源一手，高配服务器多线程稳定运行，搭配超级AI算法，胜率有保证。
 - **[AG博彩娱乐app【659795.com】大额无忧，U存U取](https://t.me/dgvv456)** - AG博彩娱乐app【659795.com】大额无忧，U存U取 - Telegram频道
-- **[成都学生会新人 （ 重生版 ）](https://t.me/ChengDuXueShengHuiXinRenV2)** - 永久域名： https://xueshenghui.org
 - **[淘宝电商🫰闲鱼回收🫰京东商城](https://t.me/hxhxgjok)** - 卡商联盟 USDT闪兑【国内外代码卡劵】无风险，无押金测试项目平台卡劵回收项目【已备案实名认证备案域名】
 - **[Moodeng_河马社区](https://t.me/Moodeng_HM)** - MOODENG（在Arbitrum上）是一种基于创新技术的模因币，在wedegen.com上公平发行，真正由社区驱动。通过通货紧缩机制和Vitalik Buterin慈善基金，新的游戏玩法使用户能够从分享创造力和情感中受益。
 - **[手机苹果卡💸苹果商城🎟苹果ID充值🫰App Store🎁海外苹果卡](https://t.me/ofllflffmg)** - 卡豆科技交易平台已创立2年，平台对接国外渠道商一手货源无中间商，主要运营国内外礼品卡【游戏代充、购物卡、游戏充值卡、美金卡、礼品卡、】平台并且承诺支持7天售后保障质量包退包换
@@ -464,16 +476,9 @@ https://t.me/Ant_AppsSweepstakes
 - **[RioStarz Official 乐星](https://t.me/riostarz)** - 尊敬的股东们，请务必关注RIOSTARZ官方社交媒体账号，以便第一时间获取官方最新资讯。
 - **[校长读报](https://t.me/XiaoZhangDuBao)** - 多读书 多看报 感谢关注 感谢赞赏
 - **[缅甸第一特区新闻【缅北新闻】【博彩】](https://t.me/xw7005)** - 缅甸第一特区新闻【缅北新闻】【博彩】 - Telegram频道
-- **[91精选｜国产短视频](https://t.me/ccJAV)** - 91精选｜国产短视频 - Telegram频道
 - **[硬核🔥新闻&吃瓜🍉🔞](https://t.me/chigua_007)** - 如有侵权请告知删除。
 - **[福建（厦门泉州福州）认证老师榜](https://t.me/fjlaoshi)** - 榜单精选福建群 @fjlaosiji @fjcheyou 好评较多的老师
-- **[✨乱伦强暴精选](https://t.me/jierjiayouzhan)** - ✨乱伦强暴精选 - Telegram频道
-- **[高清AV\|中文字幕\|精选](https://t.me/pushav123)** - 中文字幕  日本 av  高清
-- **[91Porn\|91视频精选💋](https://t.me/so91av)** - 91Porn\|91视频精选💋 - Telegram频道
 - **[🈲缅甸《 亚太吃瓜铺 🍉 》亚太新闻](https://t.me/sucai12658)** - 0.1TRX免手续费转U 全网最低价
-- **[高清AV♦️网赚💰灰产☪️91视频♈️精选AV](https://t.me/wangzhuan183)** - 高清AV️网赚灰产️91视频️精选AV
-- **[校报交流预览群](https://t.me/XBZYQ)** - 校报交流预览群 - Telegram频道
-- **[白虎萝莉学生嫩妹精选](https://t.me/xiaoluoli_hefa)** - 白虎萝莉学生嫩妹精选 - Telegram频道
 
 ---
 
@@ -535,7 +540,6 @@ https://t.me/Ant_AppsSweepstakes
 - **[今日搞笑吃瓜\|娱乐\|搞笑](https://t.me/chiguapindao66)** - 无聊就是吃吃瓜～
 - **[【BM娱乐冠名】【华人社区】广告代发 @daifa](https://t.me/daifa)** - 【华人社区】广告介绍 @Guanggao
 - **[哈希娱乐 636 com](https://t.me/haineicunzhiji09)** - 636. com
-- **[淫趣屋丨红绿灯寸止](https://t.me/yinquwu)** - 红绿灯寸止——在这里，我们学习如何在生活中判断何时前进，何时停下。
 - **[今天 abc 看了啥](https://t.me/abcthoughts)** - 现在我也不知道这频道发了啥了，各位慢慢吃瓜，将就着看
 联系我请去 @abc1763613206
 友链儿
@@ -561,9 +565,6 @@ https://t.me/Ant_AppsSweepstakes
 - **[柬埔寨西港【赌场】线上娱乐中心](https://t.me/xgdc6)** - 柬埔寨西港【赌场】线上娱乐中心 - Telegram频道
 - **[菲律宾赌场云顶娱乐](https://t.me/YH8883099_TL889889)** - 菲律宾赌场云顶娱乐 - Telegram频道
 - **[小胖的日常分享](https://t.me/bettergoods)** - 自己的日常分享，有新闻，有音乐，有app，有好物，也炒股，关注时事财经，有思考，有感悟，有吐槽，很个人很随意。
-- **[BDSM性虐调教bondage短视频预览群](https://t.me/bondagesm123)** - BDSM性虐调教bondage短视频预览群 - Telegram频道
-- **[🔞麻豆国产 swsg 91直播探花 抖音视频 酮体的秘密](https://t.me/caoliuxsp)** - 🔞麻豆国产 swsg 91直播探花 抖音视频 酮体的秘密 - Telegram频道
-- **[成都天府机场](https://t.me/cdtianji)** - 成都娱乐第一站 频道 @tianfuairportvf
 - **[🍉吃瓜搞笑俱乐部🌚](https://t.me/cggxhhh)** - 每日吃瓜/搞笑/猎奇分享   永久频道用户名  @chigua001
 - **[《地瓜》抖音直播闪现视频](https://t.me/diguashanxian12)** - 《地瓜》抖音直播闪现视频 - Telegram频道
 - **[内涵段子 皮皮虾 吃瓜 搞笑 摸鱼](https://t.me/ppx28)** - 【广告商务】 @suiyi001
