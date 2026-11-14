@@ -404,6 +404,7 @@ https://sean.cat/about
 - **[手机苹果卡💸苹果商城🎟苹果ID充值🫰App Store🎁海外苹果卡](https://t.me/ofllflffmg)** - 卡豆科技交易平台已创立2年，平台对接国外渠道商一手货源无中间商，主要运营国内外礼品卡【游戏代充、购物卡、游戏充值卡、美金卡、礼品卡、】平台并且承诺支持7天售后保障质量包退包换
 - **[中国加密频道BSC _ETH_SOL_AVAX_BRC20🇨🇳@ZG136](https://t.me/ZG136)** - https://twitter.com/ZG_136
 - **[【DataClub】数据服务官方频道](https://t.me/DataClubs)** - 区块链程序定制开发/包月运维/
+- **[Python + AI 分享频道](https://t.me/pythontrendingweekly)** - 中文 Python/AI 技术频道，每周分享精选文章、开源项目、工具与热门话题。
 
 ---
 
